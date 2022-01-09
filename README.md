@@ -1,2 +1,2 @@
-# innovation-hackathon-jan22
+# Team Soochee
 For participants in the Innovation Hackathon of Jan-22
